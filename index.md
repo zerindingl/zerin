@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+My home page in my first blog.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+I will use it for published my summaries for books.
